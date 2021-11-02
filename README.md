@@ -9,3 +9,5 @@
 ## Qualifikationen
 > **Open Source Profi**
 
+![alt text](https://www.tagesspiegel.de/images/42721454/9224198/3-format6001.jpg)
+
